@@ -1,4 +1,4 @@
-# Municipales 2020 vs 2026 : comment les blocs politiques ont bougé, commune par commune
+# Municipales 2020 - 2026 : comment les blocs politiques ont évolué, commune par commune
 
 *Comparaison des résultats du premier tour des élections municipales de 2020 et 2026 par bloc politique, dans les 13 régions de France métropolitaine*
 
